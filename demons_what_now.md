@@ -1,0 +1,11 @@
+Demons as the hardest difficulty in the game, has evolved from originally levels that are harder than others, to the current state where the top is borderline impossible. The boundaries has been pushed, restlessly. The upper bound has never ceased to rise. Slowly, the demons have become a huge mountain, a staircase, a unending road, a ladder, waiting for the players to take on the challenge, and to climb towards perfection.
+
+Well, this sounds like a hero's journey only for those who dare, but in reality, stuff like Impact X exist. Pretty much every newcomer of Geometry Dash don't do the official Demons as their first 3 demons, but instead go for much easier demons available in the game. Search in any GD community and you shall find The Lightning Road, Platinum Adventure and The Nightmare bundled together as the "Noob Pack" for demons. Still, after answering the question of "what goes first", one must answer the next question: "what now?" The pool of demons is large, with nearly 5000 demons to be slain. A newbie will easily get lost, get confused, and get despaired.
+
+Fear not, as RobTop has further split all demons into 5 difficulties, and we are here to guide you towards to easier bunch of the Easy Demons. Here, we will list <INSERT NUMBER OF DEMONS HERE> demons that are easy but still challenging at the same time, so that you can slowly ramp up the difficulty of demons to beat. Most importantly, the levels we pick are fun to play, and will ensure you have a great time in going up the ladder.
+
+# Jumps and accelerated progress
+
+First, a major caveat: jumps do help boost your progress. We do not deny that trying out significantly harder levels are not viable. However, we think that smooth progression is also positive progression. Some players can be overwhelmed by high-tier Easy Demons such as DeCode. We are here to guide you on the pathway of a gentle climb.
+
+Also, we do not pick demons based on what skills it requires. If you want to train on specifically one gamemode or one aspect, the GD Demon Progression will help you hone specific skills. However, GDDP misses out on great levels in the community, notably all the following demons do not make it into the GDDP. There are hidden gems that are fun and helps you progress, and we think it would be great to bring it to the spotlight.
